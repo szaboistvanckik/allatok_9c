@@ -1,2 +1,5 @@
 # allatok_9c
-csemő = GOAT 🥶🥶🥶🥶🥶🥶🥶🥶🥶🥶🥶🥶🥶🥶🥶🥶
+Állatokat gyűjtünk ide a 9.c osztállyal
+
+
+# (csemő = GOAT 🥶🥶🥶🥶🥶🥶🥶🥶🥶🥶🥶🥶🥶🥶🥶🥶)
